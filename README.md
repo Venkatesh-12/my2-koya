@@ -4,6 +4,7 @@
 Araku valley has been prominent with **dazzling waterfalls**, dense green forests, **sprawling coffee plantations** and astounding climate.
 
 ---
+
 ## Activites at Central park
 
 1. central park zoo
