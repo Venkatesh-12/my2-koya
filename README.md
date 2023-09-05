@@ -11,7 +11,6 @@ Araku valley has been prominent with **dazzling waterfalls**, dense green forest
 2. pedicab
 3. recreational activities
 
----
 
 * burger
 * sandwich
