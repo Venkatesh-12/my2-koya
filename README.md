@@ -15,3 +15,5 @@ Araku valley has been prominent with **dazzling waterfalls**, dense green forest
 * burger
 * sandwich
 * pizza
+
+[MyStats](MyStats.md)
